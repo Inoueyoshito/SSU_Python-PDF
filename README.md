@@ -1,4 +1,5 @@
 
+
 「Sibuya Startup University　の0期生に選出された 9月から参加」
 
 今回は・３人でデモ起業
